@@ -1,5 +1,5 @@
-# Hello, world!
+# Hello, Dariya!
 
-I study in Netology
+I love you , You beautiful girl
 
-21.06.2023
+27.06.2023
